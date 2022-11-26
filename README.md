@@ -89,7 +89,7 @@ deve ir a obra. Avise por gentileza um dos irmãos responsáveis para que ele po
 a substituição da voluntária que está doente.
 
 ### Devo me preocupar com a segurança na cozinha?
-Com certeza, veja [aqui](https://github.com/ibrahim-brumate/arranjo-alimentacao/blob/master/seguranca.md) alguns lembretes de como cozinhar com segurança!
+Com certeza, veja alguns lembretes de como cozinhar com segurança!
 
 ### E se aconteceu um acidente, um corte, queimadura ou queda, devo continuar cozinhando?
 >É elogiável a preocupação das voluntárias com este assunto, entretanto precisamos sempre usar o bom senso. No caso de quedas, queimaduras, cortes profundos, ou alguém bater a cabeça, a segurança e a vida vêm em primeiro lugar. Em situações graves, a pessoa não deve continuar trabalhando mas sim procurar atendimento médico imediatamente, principalmente se bater a cabeça.
