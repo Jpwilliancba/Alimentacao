@@ -1,3 +1,45 @@
+[Quando começa o arranjo da cozinha?](https://github.com/ibrahim-brumate/arranjo-alimentacao/#quando-come%C3%A7a-o-arranjo-da-cozinha)
+
+* [Qual é o horário de funcionamento da cozinha?](https://github.com/ibrahim-brumate/arranjo-alimentacao/#qual-%C3%A9-o-hor%C3%A1rio-de-funcionamento-da-cozinha)
+
+* [Onde fica essa cozinha? Tem transporte público por perto? Tem onde estacionar?](https://github.com/ibrahim-brumate/arranjo-alimentacao/#onde-fica-essa-cozinha-tem-transporte-p%C3%BAblico-por-perto-tem-onde-estacionar)
+
+* [Vou precisar participar da cozinha toda semana?](https://github.com/ibrahim-brumate/arranjo-alimentacao/#vou-precisar-participar-da-cozinha-toda-semana)
+
+* [Por quanto tempo vou precisar apoiar o arranjo?](https://github.com/ibrahim-brumate/arranjo-alimentacao/#por-quanto-tempo-vou-precisar-apoiar-o-arranjo)
+
+* [Já avisei os dias que posso apoiar o arranjo. Preciso avisar de novo?](https://github.com/ibrahim-brumate/arranjo-alimentacao/#j%C3%A1-avisei-os-dias-que-posso-apoiar-o-arranjo-preciso-avisar-de-novo)
+
+* [Precisamos cozinhar para quantas pessoas?](https://github.com/ibrahim-brumate/arranjo-alimentacao/#precisamos-cozinhar-para-quantas-pessoas)
+
+* [Que refeições serão servidas?](https://github.com/ibrahim-brumate/arranjo-alimentacao/#que-refei%C3%A7%C3%B5es-ser%C3%A3o-servidas)
+
+* [E as voluntárias, vão almoçar onde?](https://github.com/ibrahim-brumate/arranjo-alimentacao/#e-as-volunt%C3%A1rias-v%C3%A3o-almo%C3%A7ar-onde)
+
+* [O que vamos cozinhar?](https://github.com/ibrahim-brumate/arranjo-alimentacao/#o-que-vamos-cozinhar)
+
+* [Como faço se eu desejo levar uma sobremesa diferente para a equipe comer?](https://github.com/ibrahim-brumate/arranjo-alimentacao/#como-fa%C3%A7o-se-eu-desejo-levar-uma-sobremesa-diferente-para-a-equipe-comer)
+
+* [O que eu preciso levar para a cozinha?](https://github.com/ibrahim-brumate/arranjo-alimentacao/#o-que-eu-preciso-levar-para-a-cozinha)
+
+* [O que eu não preciso levar para a cozinha?](https://github.com/ibrahim-brumate/arranjo-alimentacao/#o-que-eu-n%C3%A3o-preciso-levar-para-a-cozinha)
+
+* [Haverá uma voluntária designada para liderar e dizer como as coisas devem ser feitas?](https://github.com/ibrahim-brumate/arranjo-alimentacao/#haver%C3%A1-uma-volunt%C3%A1ria-designada-para-liderar-e-dizer-como-as-coisas-devem-ser-feitas)
+
+* [Haverá algum pré-preparo na cozinha?](https://github.com/ibrahim-brumate/arranjo-alimentacao/#haver%C3%A1-algum-pr%C3%A9-preparo-na-cozinha)
+
+* [Se eu estiver com sintomas de gripe ou resfriado, devo ir para minha designação?](https://github.com/ibrahim-brumate/arranjo-alimentacao/#se-eu-estiver-com-sintomas-de-gripe-ou-resfriado-devo-ir-para-minha-designa%C3%A7%C3%A3o)
+
+* [Devo me preocupar com a segurança na cozinha?](https://github.com/ibrahim-brumate/arranjo-alimentacao/#devo-me-preocupar-com-a-seguran%C3%A7a-na-cozinha)
+
+* [E se aconteceu um acidente, um corte, queimadura ou queda, devo continuar cozinhando?](https://github.com/ibrahim-brumate/arranjo-alimentacao/#e-se-aconteceu-um-acidente-um-corte-queimadura-ou-queda-devo-continuar-cozinhando)
+
+* [Quando o expediente da cozinha acabar gostaria de ajudar na obra da reforma. Posso fazer isso também?](https://github.com/ibrahim-brumate/arranjo-alimentacao/#quando-o-expediente-da-cozinha-acabar-gostaria-de-ajudar-na-obra-da-reforma-posso-fazer-isso-tamb%C3%A9m)
+
+* [Meu cônjuge, filho(a), parente ou amigo(a) entende muito de cozinha e gostaria muito de ajudar! Posso levá-lo junto?](https://github.com/ibrahim-brumate/arranjo-alimentacao/#meu-c%C3%B4njuge-filhoa-parente-ou-amigoa-entende-muito-de-cozinha-e-gostaria-muito-de-ajudar-posso-lev%C3%A1-lo-junto)
+
+* [Quero ajudar na obra mesmo, sem ser na cozinha. Posso fazer isso?](https://github.com/ibrahim-brumate/arranjo-alimentacao/#quero-ajudar-na-obra-mesmo-sem-ser-na-cozinha-posso-fazer-isso)
+
 # Cozinha-Grupo-13
 Perguntas frequentes equipe de alimentação
 > Este documento serve para orientar as voluntárias sobre dúvidas básicas que possam ter.
