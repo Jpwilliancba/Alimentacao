@@ -45,16 +45,14 @@ Perguntas frequentes equipe de alimentação
 > Este documento serve para orientar as voluntárias sobre dúvidas básicas que possam ter.
 >Abaixo vão algumas informações importantes que poderão ser consultadas ao longo do arranjo.
 >Essas informações podem mudar, por isso periódicamente de uma olhada neste documento.
->### Quando começa o arranjo da cozinha?
->Algumas voluntárias vão começar a partir do dia 04/01/2023.
 
+### Quando começa o arranjo da cozinha?
+>Algumas voluntárias vão começar a partir do dia 04/01/2023.
 >Uma planilha com as designações será enviada no grupo do WhatsApp.
 
 ### Qual é o horário de funcionamento da cozinha?
 >A cozinha vai funcionar de Terça à Sábado das 08:00 as 15:00.
-
 >As escalas serão enviadas no grupo do WhatsApp.
-
 >Se por motivo de força maior não puder comparecer no dia escalado pedimos a gentileza de **se for possível** informar com antecedência que não poderá comparecer no dia designado.
 
 ### Onde fica essa cozinha?
