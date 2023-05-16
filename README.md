@@ -47,7 +47,7 @@ Perguntas frequentes equipe de alimentação
 >Essas informações podem mudar, por isso periódicamente de uma olhada neste documento.
 
 ### Quando começa o arranjo da cozinha?
->Algumas voluntárias vão começar a partir do dia 04/01/2023.
+>Sera informado no grupo da cozinha pelo responsavel local do arranjo.
 >Uma planilha com as designações será enviada no grupo do WhatsApp.
 
 ### Qual é o horário de funcionamento da cozinha?
@@ -69,7 +69,7 @@ Perguntas frequentes equipe de alimentação
 >Talvez você trabalhe duas semanas seguidas ou talvez demore a trabalhar novamente visto que só pode de sábado e aos sábados temos mais voluntárias disponíveis.
 
 ### Por quanto tempo vou precisar apoiar o arranjo?
->A obra está prevista para durar até 14/03/2023. Por isso a cozinha vai funcionar durante todo o período em que a obra estiver em andamento.
+>A obra está prevista para durar 3 meses. Por isso a cozinha vai funcionar durante todo o período em que a obra estiver em andamento.
 
 >Esperamos que as voluntárias possam ajudar durante o período da obra. Porém se por qualquer motivo não for possível basta informar um dos responsáveis pelo arranjo.
 
@@ -113,7 +113,7 @@ pensando em toda a equipe.
 >Aventais ou roupas sintéticas oferecem risco maior no caso de um incidente com fogo. Por isso, para sua segurança, não use vestimentas feitas de materiais sintéticos.
 
 ### Haverá uma voluntária designada para liderar e dizer como as coisas devem ser feitas?
->Não! Não existem regras sobre como o arroz ou feijão deverá ser cozido ou temperado. Todo o necessário para que os alimentos sejam preparados estará disponível.
+>Não! O irmão responsavel pela cozinha fara as designações de atividades e a consideração diaria de segurança. Todo o necessário para que os alimentos sejam preparados estará disponível.
 
 >Claro que entre as voluntárias pode haver mais ou menos experientes e até mesmo todas serem muito experientes. Esperamos que pela madureza, as voluntárias se entendam num espírito de união e que possam colaborar entre si, prestando ajuda sempre que ela **for solicitada**. Esperamos que as tarefas possam ser repartidas entre vocês com tranquilidade.
 
@@ -136,7 +136,7 @@ Com certeza, veja  alguns lembretes de como cozinhar com segurança!
 
 >Também todos os acidentes ou *quase* acidentes precisam ser relatados a um dos responsáveis, não visando penalizar a voluntária, mas sim melhorar o processo de segurança na cozinha.
 ### Quando o expediente da cozinha acabar gostaria de ajudar na obra da reforma. Posso fazer isso também?
->Pode sim! Precisa apenas ter seus EPI com você, como capacete, óculos, luva, bota apropriada etc. Daí é só ir para a obra ajudar.
+>Será necessario verificar com antecedencia. O Acessoa ao canteiro de obras é restrito por motivos de segurança.
 ### Meu cônjuge, filho(a), parente ou amigo(a) entende muito de cozinha e gostaria muito de ajudar! Posso levá-lo junto?
 >Ficamos muito felizes de saber que há tantos voluntários(as) dispostos e
 animados para ajudar. Mas para que "todas as coisas ocorram com decência
